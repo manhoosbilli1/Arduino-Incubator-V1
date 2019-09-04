@@ -35,3 +35,6 @@ Motor code: https://pastebin.com/kuDdcQeN
 
 https://www.youtube.com/watch?v=5ZonbWXAxZY
 
+
+Part 1 video: https://youtu.be/5ZonbWXAxZY
+Part 2 Video: https://www.youtube.com/watch?v=lgHcUqFDwnY
